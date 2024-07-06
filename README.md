@@ -1,3 +1,3 @@
-# WWELCOME TO MY TECHDYNAMO VIRTUAL WORLD
+# Welcome to My TechDynamo Virtual World
 
-## SJADN
+## dkjfn
